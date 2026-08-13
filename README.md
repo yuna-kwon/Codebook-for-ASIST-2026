@@ -1,4 +1,4 @@
-# ASIS&T Annual Meeting 2026 - POSTER
+# ASIS&T Annual Meeting 2026 - Poster
 
 Title: Archive, Continue, or Delete? Examining Account Management in Political Leaders’ Social Media
 
